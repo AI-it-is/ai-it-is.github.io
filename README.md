@@ -1,1 +1,1 @@
-# qnalnandi.github.io
+# ai-it-is.github.io
